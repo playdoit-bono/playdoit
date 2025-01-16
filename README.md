@@ -1,3 +1,5 @@
+# <a href="https://bit.ly/casmx">¡HAZ CLIC Y RECLAMA TU BONO!</a>
+
 # Playdoit Casino 2025: La Nueva Era del Entretenimiento en México
 
 En 2025, Playdoit Casino se ha convertido en un referente de innovación y calidad en el mundo de los juegos de azar en México. Con una plataforma digital moderna y un enfoque en la satisfacción del cliente, Playdoit Casino ofrece una experiencia única que combina diversión, seguridad y grandes oportunidades para ganar.
