@@ -32,7 +32,7 @@ Playdoit Casino no es solo un lugar para jugar; es una comunidad. Con torneos re
 
 playdoit
 
-playdoit casino
+<a href="https://playdoit-casino.mx">playdoit casino</a>
 
 playdoit app
 
